@@ -1,7 +1,7 @@
 <h1 align="center">Hi 👋, I'm Faisal irfan</h1>
 <h3 align="center">Passionate about web development and open source contribution</h3>
 
-- 🔭 I’m currently working on **https://github.com/reactplay/react-play**
+- 🔭 I’m currently working on **Hexbit.io** as an intern
 
 - 👯 I’m looking to collaborate on **Any react project(currently non)**
 
