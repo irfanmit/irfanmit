@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **faisalirfan2502@gmail.com**
 
-- 📄 Know about my experiences [[https://drive.google.com/file/d/1GXFgyj19j-dO9Tm-Xfll9Xy3CiXeGtUl/view?usp=sharing](https://drive.google.com/file/d/1GXFgyj19j-dO9Tm-Xfll9Xy3CiXeGtUl/view?usp=sharing)](https://drive.google.com/file/d/1-2y42MZXCHCGMInhM9ifVOKsxuqPaCbJ/view?usp=sharing)
+- 📄 Know about my experiences https://drive.google.com/file/d/1-2y42MZXCHCGMInhM9ifVOKsxuqPaCbJ/view?usp=sharing
 
 - ⚡ Fun fact **Smiling can heal you and it is costless**
 
